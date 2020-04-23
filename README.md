@@ -1,4 +1,4 @@
-# all-my-teeets
+# all-my-tweets
  not that they are worth saving
 
 So I got suspended from Twitter, which is kind of a bummer because I was on there nearly every day since 2007. But honestly it wasn't good for me. I spent a lot of time on there just telling people they were wrong (which eventually got me suspended). It was a bad way to spend my energy, and it put me in a bad mood. 
